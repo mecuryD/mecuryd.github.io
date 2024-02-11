@@ -1,1 +1,0 @@
-# mecuryd.github.io
